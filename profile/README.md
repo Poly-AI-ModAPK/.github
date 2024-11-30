@@ -4,7 +4,8 @@
 Poly AI Mod APK is a fun and interactive mobile app powered by advanced artificial intelligence. It allows users to engage in dynamic conversations with lifelike AI personalities. The app combines entertainment and technology, offering personalized chats, storytelling, and customizable bots. This modded version brings premium features and unlimited coins, enhancing the overall experience for users.  
 
 ## ⬇️[Download Poly AI Mod APK](https://modhello.com/polyai/)📲
-![images (3)](https://github.com/user-attachments/assets/567670f6-b0b9-4310-9277-e10011a27d9b)
+![PolyAI](https://github.com/user-attachments/assets/57e65507-6656-4e9a-8234-ac29b1271647)
+
 
 ## Features of the Poly AI Mod APK  
 This AI-driven app comes loaded with features designed to provide an immersive experience. From realistic voice synthesis to customizable AI characters, there’s plenty to explore.  
